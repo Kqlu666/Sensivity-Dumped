@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/cd3bdb36-6533-47ea-848f-77b43f53893f)
+
+
 meme 1:
 ![image](https://github.com/user-attachments/assets/26927dcb-51e1-4d02-a2d3-6ff7e672669e)
 meme 2:
